@@ -10,6 +10,6 @@ ii.And Extract the File and Open Index.html to Read the story
 
 Important: This Dedicated for Phones only
 
-Or Click the link [Link] to view our Webpage.
+Or Click the link https://thestoryseries.github.io/Tim-The-Invisible-MUTANT-Phone/ to view our Webpage.
 
 Copyrighted by MR.SCRIPTER MR.CODER ©
